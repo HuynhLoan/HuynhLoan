@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi guy 👋
 
 Here are some ideas to get you started:
 
@@ -8,4 +8,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... Hloan4266@gmail.com
 - 😄 Pronouns: ... She/Her
 - ⚡ Fun fact: ...Có làm thì mới có ăn
--->
+
